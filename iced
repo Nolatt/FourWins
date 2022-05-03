@@ -1,3 +1,0 @@
-Furkan Akbaş 
-Noel Thorwesten 	
-Mohammad Azizi
